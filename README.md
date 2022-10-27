@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Gami222
+- 👀 I’m interested in Coding, AI, Minecraft
+- 🌱 I’m currently learning Coding And More
